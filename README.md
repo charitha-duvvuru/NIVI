@@ -1,0 +1,2 @@
+NIVI is a ground-breaking advancement in AI-powered virtual help that tackles accessibility issues and improves automation in digital interactions. By redefining how people use technology, it improves the usability, efficiency, and inclusivity of digital places.
+By making constant improvements, NIVI hopes to transform from a tool into a necessary companion for users everywhere, enabling them to easily traverse the digital world.
